@@ -1,0 +1,1 @@
+# whether-a-blight-ticket-will-be-paid-or-not-
